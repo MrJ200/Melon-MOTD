@@ -1,0 +1,2 @@
+# Melon-MOTD
+MOTD Melon
