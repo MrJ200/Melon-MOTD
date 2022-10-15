@@ -1,2 +1,1 @@
-# Melon-MOTD
-MOTD Melon
+HEY MELONS!
