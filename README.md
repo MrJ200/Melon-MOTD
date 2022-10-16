@@ -4,3 +4,6 @@ TO THE NEW REVAMP!
 COSMETICS
 ARE FIXED!
 AND MUCH MORE!
+ok sorry the
+map will be sized 
+down.
